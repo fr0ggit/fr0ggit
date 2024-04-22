@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @fr0ggit
+- 👀 I’m interested in frogs and coding
+- 🌱 I’m currently learning as much as i can whilst working fulltime
+- 💞️ I’m looking forward to collaborate
+- 📫 Reach me via mail
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: Ceratophrys ornata - The "Ornate Horned Frog," often called the "Pac-Man Frog," for its large mouth and aggressive eating behavior that resembles the video game character :V
